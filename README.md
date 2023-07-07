@@ -1,2 +1,1 @@
-# GELISMISBIRBOT
-asdsadasdasdasd
+# Selamın Aleyküm Mümin Kardeşim
